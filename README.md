@@ -62,7 +62,7 @@ Yukun Wang:
 
 Yibing Xia:
 
-Richard Xu:
+Richard Xu: Who else has six lectures on Monday like me?
 
 Xiran Yin:
 
